@@ -14,4 +14,4 @@ Part 1: https://www.youtube.com/watch?v=rKGq42FMV8c
 Part 2: https://www.youtube.com/watch?v=P9Uscu97ecc
 
 ## Stopped at
-*Part 1, 0.00*
+*Part 1, 9:29*
